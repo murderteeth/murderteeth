@@ -1,4 +1,4 @@
 ✨ ⚔️ ✨
 
-👋 Hiya, I am @murderteeth \
+👋 I'm Murderteeth \
 🐥 https://twitter.com/@murderteeth
